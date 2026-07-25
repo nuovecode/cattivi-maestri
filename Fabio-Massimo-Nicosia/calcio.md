@@ -44,3 +44,29 @@ Addirittura, lo pseudo-Inzaghi ha chinato il capo persino innanzi alla più gran
 Ebbene, anche oggi lo pseudo-Inzaghi ha preferito Gagliardini ad Asslani, depauperando e sprecando questo capitale aziendale, dato che il ragazzo, che è consapevole di essere pressoché l'unico giocatore dell'Inter con i piedi buoni, si vede costantemente preferito quel sottosviluppato del Gaglia, il quale anche oggi ha avuto il suo quarto d'ora per far vedere che viene nominato dal telecronista solo al decimo minuto, dato che è sistematicamente assente dal gioco, dato che nessuno osa chiamarlo in causa.
 
 _Pseudonimo Giuseppe Bessarione. Facebook, 19 Febbraio 2023_
+
+---
+
+Dopo una partita come questa viene da ribadire che Inzaghi è inesistente come allenatore.
+
+Non ha un gioco, non sa cambiare "gioco" in corsa, non sa dare direttive ai giocatori, non li sa formare.
+Barella sono mesi che fa cagare con la sua ostinazione, e Inzaghi non è capace nel corso della settimana di chiamarlo da parte e fare un discorsetto.
+Anche per questo Inzaghi è un inetto e un incapace.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 13 Febbraio 2023_
+
+---
+
+La sinistra riparta da Barella
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 13 Febbraio 2023_
+
+---
+
+Non capisco i fuorigioco come quello imputato a Lautaro.
+
+I fuorigioco di un cm non valgono nulla, dato che non v'è certezza sull'attimo esatto in cui la palla si stacca dal compagno precedente.
+
+In quanto tifoso di Lukaku, l'ho visto in netta crescita: bello quando è caduto, e ha fatto in tempo a rialzarsi, tirare e quasi segnava.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 6 Febbraio 2023_

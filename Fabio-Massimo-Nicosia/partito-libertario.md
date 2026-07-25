@@ -53,3 +53,24 @@ E quanto più la sinistra, da allineata al sistema, se ne rende caposaldo -in qu
 A fronte di tutto questo, noi del Partito Libertario ovviamente possiamo ben poco, da soli: quello che possiamo fare è però reintrodurre nel discorso politico la necessità di gettare alle ortiche la stagione dei “pensieri deboli”, in nome di un nuovo pensiero forte: diciamo che è anche una nostra strategia differenziante di marketing.
 
 _[Sito web del Partito Libertario](https://www.partitolibertario.online/editoriale/pluralismo-dei-valori-pensiero-debole-e-partito-libertario-tra-idiocrazia-e-morte-della-sinistra), 13 maggio 2022_
+
+---
+
+Segnalo che il 18 marzo a Roma, in via Bertoloni 45 (Villa Barberini) si terrà il Primo Congresso vero e proprio del PARTITO LIBERTARIO, da me presieduto e fondato.
+
+Si tratta del migliore Partito su piazza, come sanno coloro i quali ne hanno letto i programmi.
+
+Siamo l'unico partito che vuole abolire il TSO, l'unico che vuole costruire un sistema concorrenziale di giustizia, visto il fallimento della giustizia di Stato nel controllare lo Stato, vedi vicenda vaccinale
+Siete tutti invitati, chi versa un contributo all'ingresso ha diritto di voto.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 17 Febbraio 2023_
+
+---
+
+Il giorno 18 marzo a Roma si terrà il primo congresso "vero e proprio" del Partito Libertario.
+
+Singori, vi parrebbe normale non essere presenti a questo evento di portata storica?
+
+Ben sapete come il Partito Libertario sia l'unico degno di nota presente su piazza, quindi venite: pagando l'ingresso, acquisite diritto di voto, dato che noi siamo aperti al mondo...
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 16 Febbraio 2023_

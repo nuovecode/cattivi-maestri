@@ -120,7 +120,7 @@ Sicché siamo di fronte a un fenomeno nuovo, ossia che la persona comune e sempl
 
 Qui si fronteggia non già un’istituzionalizzazione di troppo, ma una de-istituzionalizzazione, dato che il demanio non viene trattato come tale, nel rispetto del diritto vigente, ma, con l’avallo dello Stato e degli organismi sovranazionali, da res nullius liberamente attingibile dal soggetto più forte; sicché, paradossalmente, la nuova alienazione è frutto di un’astuta combinazione tra iper-istituzionalizzazione e ritorno allo stato di natura hobbesieano, in cui vince il predatore più forte.
 
-_Sito del partito libertatio (rimosso), 8 ottobre 2022_
+_Fabio Massimo Nicosia. Sito del partito libertatio (rimosso), 8 ottobre 2022_
 
 ---
 

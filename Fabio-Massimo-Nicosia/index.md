@@ -8,6 +8,8 @@
 - [Covid](./covid.md)
 - [Politica Italiana](./politica.md)
 - [La vicenda psichiatrica](./vicenda-psichiatrica.md)
+- [Scritti giuridici](./scritti-giuridici.md)
 - [Personale](./personale.md)
 - [Varie](./varie.md)
 - [L'alienazione-procedimento e il finto lavoro dei Kapò](./lavoro-privilegio-e-alienazione-procedimento.md)
+- [Libertà progressista e libertà delle persone comuni](./liberta-progressista-e-liberta-delle-persone-comuni.md)

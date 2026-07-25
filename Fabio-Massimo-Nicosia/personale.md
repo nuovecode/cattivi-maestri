@@ -30,3 +30,34 @@ Rievochiamo il passato, anche autocriticamente, parliamo di qualsiasi tema di at
 Veramente qualcosa di bello
 
 _Pseudonimo Giuseppe Bessarione. Facebook, 20 Febbraio 2023_
+
+---
+
+Pietro Adamo era mio grande amico (salvo alcuni suoi aspetti fastidiosi, ma tutti abbiamo aspetti fastidiosi) dalla metà degli anni '90, poi divenne covidiota e non ci siamo sentiti più.
+
+Lo stato di emergenza ha rotto rapporti antichi, sarà capitato anche a voi, di avere una musica in testa.
+
+Oh, come molti sapranno, Pietro Adamo da decenni studia la pornografia. Lo so che anche voi studiate la pornografia, però poi non scrivete libri sull'argomento, invece lui ne ha scritti tre o quattro.
+
+Ho letto ieri una recensione a uno di questi libri, una recensione ironica, di uno di area anarchica rivolto a Pietro che è anche lui di area anarchica, come dimostra il fatto che sia diventato un covidiota, dato che, come sapete, il movimento anarchico è stato pessimo in questa vicenda, anche se la delusione maggiore mi è venuta da Toni Negri, il quale disse subito "state a casa", e in quel momento Negri cessò di essere un mio punto di riferimento culturale (e poi ha anche ecceduto in europeismo).
+
+Torniamo alla recensione del libro di Pietro.
+
+Ecco, io, conoscendolo dal 1995, so che buona parte della sua giornata, pur essendo lui prof universitario, o proprio per questo, la passa, quando non va all'ipermercato a fare la spesa con la moglie Fabiola, a guardare film porno: ne ha scaricate decine di migliaia.
+
+E nel suo libro scrive: "Se tu parli di filosofia devi conoscere bene Hegel, Spinoza, Kant e gli altri. Se parli di pornografia la devi conoscere altrettanto bene".
+
+Il recensore lo sfotte, immaginandolo mentre si fa le seghe dalla mattina alla sera, dicendo "vabbé, non c'era bisogno che mettessi le mani avanti, coltizzando il porno, comunque hai ragione, occorre conoscere la materia".
+
+Venendo al serio, qui emerge il mio dissenso teorico e filosofico rispetto a Pietro, che si era già manifestato in una nostra discussione di anni fa, nel corso della quale lui mi diede del "platonico", come se fosse un'offesa.
+
+Perché io dicevo che le idee sono eterne, ossia sono sempre esistite e sempre esisteranno, mentre lui, che rivendica il suo essere uno storico, dice che esiste solo quello che si è manifestato nel corso della storia.
+
+Che cosa comporta questo ai fini de quibus?
+
+Comporta che lui, per sapere che cos'è la pornografia, ha poi necessità di vedere TUTTI i flim pornografici mai girati nella storia, mentre a me basta pensarli, e mettere nei pensieri qualsiasi cosa possa essere girato in un film pornografico, compreso quelli che NON SONO ANCORA STATI GIRATI... 
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 12 Febbraio 2023_
+
+---
+

@@ -118,3 +118,20 @@ dall’inizio della mia vicenda psichiatrica a oggi, ho pubblicato diversi volum
 
 _Pseudonimo Giuseppe Bessarione. Facebook, 21 Febbraio 2023_
 
+---
+
+Una volta Antonio Martino mi citò senza citarmi
+
+Nel mio libro "Il sovrano occulto" (2000) introdussi il concetto di "disobbedienza INcivile", che era il titolo della versione provvisoria del libro.
+
+Scrissi quindi che un semaforo poteva essere percepito come un ordine a Francoforte e come un consiglio a San Giorgio a Cremano.
+
+Un giorno mi imbattei sul Corriere in un'intervista ad Antonio Martino, il quale, nell'ambito di un discorso su come la gente potesse intendere la legge in modo differente, a un certo punto disse: "Un semaforo può essere percepito come un ordine a Francoforte e come un consiglio a San Giorgio a Cremano".
+
+Che Martino mi conoscesse non mi sorprende, dato che gli ero stato presentato dal prof. Raimondo Cubeddu, e soprattutto in quegli anni ero diventato amico di Alberta, la figlia.
+
+Quindi è probabile che avessi regalato ad Alberta una copia del libro, che mi era stato di viatico al mio ingresso in Andersen Legal, il mio libro preferito da mia mamma, peraltro.
+
+Tanto ad Andersen Legal, quanto a mia mamma, era piaciuto il nichilismo iconoclasta del libro stesso.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 4 Febbraio 2023_

@@ -1,6 +1,7 @@
 # Fabio Massimo Nicosia sugli anni del COVID
 
 Burioni: "Io ho fatto l'affermazione "in Italia in questo momento il rischio è zero" il 2 febbraio. In quel momento le autorità ci dicevano che in Italia il virus non c'era. La mia colpa è - dunque - quella di non avere avuto la capacità di prevedere che il virus sarebbe stato trovato diciotto giorni dopo".
+
 Vorrei ricordare a Burioni che lo "stato di emergenza" è stato dichiarato il 31 gennaio. Vero è che non sono seguiti fatti, anzi, nessuno nemmeno ne fu chiaramente informato. Però almeno Burioni, dato il suo ruolo, avrebbe dovuto saperlo.
 
 _Fabio Massimo Nicosia - Profilo personale, 28 marzo 2020_
@@ -23,12 +24,40 @@ _Fabio Massimo Nicosia - 5 aprile 2023_
 ---
 
 Considerazione retrospettiva
+
 Chi sostiene che devono parlare di scienza solo gli specialisti, poi si contraddice, affidando la divulgazione e la volgarizzazione degli esiti scientifici a giornalisti del tutto sguarniti come Giuseppe Brindisi, Myrta Merlino, Klaus Davi, Alessandro Cecchi Paone, Alan Friedman, Antonio Caprarica, e altri lecchini del regime, al quale il regime stesso rilascia la patente abilitativa a parlare di “scienza” al colto e all’inclita
 
 _Pseudonimo Giuseppe Bessarione. Facebook, 22 Febbraio 2023_
 
 ---
 
-Anche con le sentenze della Corte Cost sull'obbligo vaccinale, è stato fatto prevalere l’analfabetismo epistemologico di Burioni, il noto inventore di strafalcioni, il primo del quale fu “la scienza non è democratica, perché due più due fa quattro”, una frase sbagliata da ogni punto di vista: prima di tutto, infatti, l’aritmetica non ha niente a che vedere con la “scienza” come la si intende comunemente, dato che l’aritmetica è composta da tautologie autoevidenti e che si autoconfermano, mentre la scienza è la sede della ricerca dell’ignoto e del dubbio sugli esiti di tale ricerca, della provvisorietà di questi esiti alla luce delle nuove scoperte, nonché la sede del franco e aperto dibattito, laddove sull’affermazione che due più due fa quattro non c’è nulla da dibattere; quindi è chiaro l’intento: ridurre la scienza a qualcosa di inconfutabile da parte di dissidenti nell’ambito stesso della scienza e da parte dell’opinione pubblica, ossia trattando da asserzioni indiscutibili quelle che sono proposizioni ampiamente opinabili; per le stesse ragioni, quindi, la scienza è anche democratica: è democratica, anzitutto, nel senso che esiste un’amplissima e variegata comunità scientifica, di tal che ogni paper, ogni esposizione di ipotesi e teorie scientifiche si espone e propone alla confutazione da parte degli altri membri della comunità; in secondo luogo, la scienza è democratica anche in un senso più ampio: vale a dire che, se l’attività scientifica prende le mosse da osservazioni ed esperimenti, sempre però alla luce della disponibilità di una data teoria, in modo tale che momento induttivistico e momento deduttivistico inevitabilmente si incrocino -fermo restando che l’osservazione e l’esperimento riguarderà sempre una porzione estremamente circoscritta della realtà e del “fatto” rilevante, dato che questo raramente arriva al margine ultimo del davvero rilevante (Quine)-, tali attività di osservazione e di sperimentazione devono essere articolate linguisticamente e comunicate, ben sì alla comunità degli scienziati, ma, molto spesso all’insieme dell’opinione pubblica, stanti le esigenze propagandistiche, molte volte, di tale attività detta scientifica (si allude evidentemente alla nota vicenda delle virostar televisive); e quindi sono gli scienziati stessi a proporre una divulgazione e, soprattutto, una volgarizzazione di quelli che essi ritengono gli esiti delle proprie osservazioni e dei propri esperimenti, o, più spesso, di quelli di loro colleghi più autorevoli; ebbene, a quel punto, stante il metodo che ho definito di “falsificazionismo logico”, l’intera opinione pubblica viene posta in grado di verificare se nell’esposizione linguistica volgare dell’attività scientifica da parte degli scienziati stessi vi siano falle e fallacie logiche di qualsiasi tipo, di tal che invalidare, anche da parte di non specialisti, determinate ipotesi o teorie scientifiche, a partire appunto dal momento della loro esposizione linguistica, alla luce dei modi e della qualità dell’esposizione linguistica stessa, la quale deve risultare intrinsecamente e autonomamente persuasiva.
+Che schifo Gianni Morandi!
 
-_Pseudonimo Giuseppe Bessarione. Facebook, 22 Febbraio 2023_
+Non ho guardato Sanremo, tranne i Pooh il primo giorno, quindi scopro ora che ha cantato una versione indegna di "C'era un ragazzo che come me amava i Beatles e i Rolling Stones" dedicata a Zelensky, che dice "C'era un ragazzo che come me amava Biden e i grandi show".
+Una schifezza scritta chissà da chi, forse dallo stesso che ha scritto "Sì sì vax, sì sì vax, vacci-nia-mo-cii!"
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 12 Febbraio 2023_
+
+---
+
+A volere essere precisi sul piano tecnico, però, i componenti della Corte Costituzionale (almeno quelli che hanno votato a favore) andrebbero arrestati, dato che questa sentenza rappresenta concorso in omicidio volontario, come hanno sottolinato i magistrati tedeschi.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 12 Febbraio 2023_
+
+---
+
+Si propone quindi di “subordinare la politica alla scienza”, come nuova formula di legittimazione dell’autorità, come aveva previsto con terrore Bakunin, come nuovo fondamento dell’”interesse pubblico”, in quanto prevalente, non solo sull’”interesse individuale”, ma anche sui più elementari diritti fondamentali individuali, e naturalmente si tratta di un concetto quasi sempre truffaldino di scienza, in quanto il concetto che viene proposto elide l’elemento fondamentale dell’epistemologia non solo moderna, vale a dire la libera concorrenza delle teorie scientifiche, e quindi culturali e politiche.
+
+Sia consentita a tale proposito una digressione: la scelta tra interesse pubblico e interesse individuale viene proposta come una sorta di scelta a somma zero ed escludente, dato che viene proposta come una sorta di trolley problem, nel quale l’individuo viene trattato come il famoso “uomo grasso”, il quale meriterebbe di essere sacrificato, perché, dall’altra parte dei binari, si situa un “collettivo”, ossia cinque persone, tal per cui la quantità fa premio sull’eventuale qualità, in modo tale che “cinque” deve per forza valere più di “uno“; il che è un nonsenso, ad esempio se tra i cinque c’è qualcuno che odiamo, o di cui non ce ne frega nulla, mentre il grassone è persona che amiamo, ad esempio perché è nostro figlio. O magari anche solo perché tra i cinque ve ne sono, in ipotesi, tre, per nulla attaccati alla vita, mentre il grassone è attaccatissimo perché adora cibarsi, e allora sarà lui, e non i cinque, a subire il danno maggiore dall’esserne privato.
+
+Invece, con riferimento all’universo politico-giuridico, è pur vero che vi sono conflitti, ma tra individui e tra gruppi, non mai tra un interesse individuale e un presunto interesse collettivo ipostatizzato, che sia qualcosa di diverso dalla sommatoria degli interessi e dei diritti individuali, dimodoché l’interesse pubblico consiste nel rispetto e nell’esaltazione di tutti i diritti individuali e non nel loro sacrificio, come se l’interesse pubblico non fosse una pura astrazione, ma qualcosa che si invera nel materiale, in quanto autonomo dagli invece davvero concreti interessi individuali. Ovvero ancora, se pure una nozione di interesse pubblico potesse essere individuata, questa non potrebbe mai ignorare e contrapporsi agli interessi e ai diritti individuali, dato che questi prevalgono nell’ordinamento lessicografico e nella gerarchia delle fonti -in quanto diritti umani, diritti fondamentali della persona-, e quindi non è mai possibile che l’inferior possa prevalere sul superior, travestendosi esso, in quanto fictio, in superior, in ribaltamento di ogni logica dotata di senso.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 11 Febbraio 2023_
+
+---
+
+Escono dunque le sentenze della Corte Cost sugli obblighi vaccinali: hanno detto che se morite sono cazzi vostri
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 10 Febbraio 2023_
+
+

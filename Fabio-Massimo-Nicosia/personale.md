@@ -20,3 +20,13 @@ Quando ciò capiterà a Marco Bassani ce lo farà sapere, visto che sono trent'a
 Sarebbe come se io da trent'anni avessi scritto solo di mutamento di destinazione d'uso degli immobili.
 
 _Pseudonimo Giuseppe Bessarione. Facebook, 20 Febbraio 2023_
+
+---
+
+Con Rossella stiamo costruendo un rapporto eccezionale -anche se talora ho talune riserve sulla sua cucina-, che si esprime in conversazioni infinite su tutto.
+
+Rievochiamo il passato, anche autocriticamente, parliamo di qualsiasi tema di attualità, la coinvolgo sulle questioni teoriche e si sta appassionando, oggi ci siamo detti delle cose mai dette su quando eravamo compagni di scuola, su quando abbiamo cominciato a frequentarci, su quando è nato il povero Riccardo con le difficoltà che ha avuto, eccetera.
+
+Veramente qualcosa di bello
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 20 Febbraio 2023_

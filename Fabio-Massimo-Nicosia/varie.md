@@ -74,3 +74,25 @@ Nella foto, Matilda De Angelis
 _Pseudonimo Giuseppe Bessarione. Facebook, 23 Febbraio 2023_
 
 ---
+
+Il principio fondamentale di dignità della persona non può essere leso nemmeno in situazioni di emergenza
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 19 Febbraio 2023_
+
+---
+
+Sto leggendo un libro sulla soft law, ossia sul diritto morbido in quanto privo di sanzione, che opera nel mercato, nelle organizzazioni internazionali e non solo.
+Ad esempio, i libri bianchi e verdi della commissione europea sono considerati soft law, così come la lex mercatoria, che oggi si rinnova.
+
+Mi è venuto in mente Bruno Leoni, il quale contestava che il diritto fosse obbligo giuridico, affermando trattarsi di scambi di pretese sul mercato.
+
+Mi è venuto anche in mente il concetto di libera ricerca del diritto, legato al concetto di giusliberismo, nel senso che io in una causa, se non si trova una soluzione nel nostro ordinamento, posso trovarla invocando il diritto finlandese, islamico o della Papuasia.
+Altro che "regolamentare tutto", come diceva Pannella nella sua fase peggiore, o come dicono i fissati che su qualsiasi cosa invocano "una legge", "ci vuole una legge"
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 19 Febbraio 2023_
+
+---
+
+In un’ottica utilitarista coerente, ossia libertaria e non autoritativa, il bene collettivo, pubblico o comune, escluso dunque che possa sacrificare interessi individuali, i quali meritano invece la presa in considerazione nel calcolo di utilità, può essere inteso esclusivamente come momento “paretiano” di massimizzazione di tutti gli interessi individuali, sul presupposto che la cooperazione, non sacrifica l’individuo, ma massimizza appunto la sua utilità, giacché ognuno si giova del supporto dell’altro: e allora, in tale chiave, l’interesse collettivo non può che essere inteso che come un momento, nel quale ciascun interesse individuale, conciliandosi con l’interesse di ciascun altro individuo, guadagna dalla cooperazione, non perde dal fatto della coesistenza e della convivenza con gli altri: in altri termini, può dirsi perseguito un interesse comune solo quando ciascun membro della collettività o della comunità ha guadagnato qualcosa dal fatto che si sia perseguito il bene comune: non che si spacci per “comune” l’interesse di alcuni, a discapito di quello di altri, i quali vengono sacrificati come individui, con il pretesto che si è perseguito il fasullo bene comune, che invece è solo l’interesse della parte più forte e menzognera.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 18 Febbraio 2023_

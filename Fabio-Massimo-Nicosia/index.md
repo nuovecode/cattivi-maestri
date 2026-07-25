@@ -10,3 +10,4 @@
 - [La vicenda psichiatrica](./vicenda-psichiatrica.md)
 - [Personale](./personale.md)
 - [Varie](./varie.md)
+- [L'alienazione-procedimento e il finto lavoro dei Kapò](./lavoro-privilegio-e-alienazione-procedimento.md)

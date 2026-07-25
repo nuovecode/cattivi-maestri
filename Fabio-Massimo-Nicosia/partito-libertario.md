@@ -52,4 +52,4 @@ E quanto più la sinistra, da allineata al sistema, se ne rende caposaldo -in qu
 
 A fronte di tutto questo, noi del Partito Libertario ovviamente possiamo ben poco, da soli: quello che possiamo fare è però reintrodurre nel discorso politico la necessità di gettare alle ortiche la stagione dei “pensieri deboli”, in nome di un nuovo pensiero forte: diciamo che è anche una nostra strategia differenziante di marketing.
 
-_[Sito web del Partito Libertario](https://www.partitolibertario.online/editoriale/pluralismo-dei-valori-pensiero-debole-e-partito-libertario-tra-idiocrazia-e-morte-della-sinistra/?fbclid=IwY2xjawTRRvZleHRuA2FlbQIxMQBzcnRjBmFwcF9pZBAyMjIwMzkxNzg4MjAwODkyAAEe3HYLq5xVBYLRrCT69lEfvK-gfyvVjZWsyHJR3p301mVOqMREZEAzCg8CW18_aem_5hqbonZy81pPdFnx-Rsqog), 13 maggio 2022_
+_[Sito web del Partito Libertario](https://www.partitolibertario.online/editoriale/pluralismo-dei-valori-pensiero-debole-e-partito-libertario-tra-idiocrazia-e-morte-della-sinistra), 13 maggio 2022_

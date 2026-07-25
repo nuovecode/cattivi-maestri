@@ -28,13 +28,19 @@ Egemonia radicale e dissoluzione della sinistra
 22. Le vere ragioni dell’abolizione del contante
 23. Conclusione: egemonia radicale e dissoluzione della sinistra allo specchio dell’epoca della segreteria di Elly Schlein
 
-<small>Pseudonimo Giuseppe Bessarione. Facebook, 28 Febbraio 2023</small>
+_Pseudonimo Giuseppe Bessarione. Facebook, 28 Febbraio 2023_
+
+---
 
 Libro finito, inviato per l'impaginazione a Enrico Sanna, grande divulgatore del pensiero left-libertarian
 
-<small>Pseudonimo Giuseppe Bessarione. Facebook, 28 Febbraio 2023</small>
+_Pseudonimo Giuseppe Bessarione. Facebook, 28 Febbraio 2023_
+
+---
 
 Passata tutta la notte a portare rapidamente a conclusione il mio nuovo libro: una storia della politica radicale e dei suoi rapporti con la sinistra dagli anni '70 a oggi, ricolma di considerazioni non solo storiche, ma anche teoriche.
 Titolo: "Abbraccio fatale - Egemonia radicale e dissoluzione della sinistra", alla quale certamente porrà rimedio la compagna Elly Schlein
 
-<small>Pseudonimo Giuseppe Bessarione. Facebook, 27 Febbraio 2023</small>
+_Pseudonimo Giuseppe Bessarione. Facebook, 27 Febbraio 2023_
+
+---

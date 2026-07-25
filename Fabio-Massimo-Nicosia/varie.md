@@ -8,7 +8,7 @@ Il reddito di cittadinanza è semmai insufficiente, dato che copre solo certe ar
 Per fare ciò ci vorrebbe un autentico utile universale, ma tutto il descritto contesto, semmai, evidenzia l'attualità e la modernità dell'antica proposta anarchica, di Proudhon e Benjamin Tucker, del libero conio: solo spezzando il monopolio monetario ognuno potrà finanziare e autofinanziare le proprie iniziative.
 Mentre in base al ragionamento di Renzi, l'unica competizione che ci può essere è quella del dumping tra riders.
 
-<small>Fabio Massimo Nicosia - Laboratorio Libertario 2 agosto 2021</small>
+_Fabio Massimo Nicosia - Laboratorio Libertario 2 agosto 2021_
 
 ### Post per persone intelligenti.
 Astenersi semicolti, studenti della Sapienza, generazione Zi e altri analfabeti di ritorno.
@@ -60,24 +60,32 @@ E infatti se c'era una cosa che non era manco per il cazzo era di essere "antifa
 Suo padre era un noto critico cinematografico, ed era radicale. Lui diceva di odiare Pannella, ma secondo me il radicalismo del padre ha lavorato in lui sottotraccia.
 Grazie Paolo per tutto quello che mi hai dato in questi 20 anni, compresa la tua generosità nel riconoscere che qualcosa ti ho dato anch'io.
 
-<small>Fabio Massimo Nicosia in memoria di Paolo Ranieri, Laboratorio Libertario 25 dicembre 2021</small>
+_Fabio Massimo Nicosia in memoria di Paolo Ranieri, Laboratorio Libertario 25 dicembre 2021_
+
+---
 
 Elly Schlein sei tutti noi!
 Vinci, e facce ride
 
-<small>Pseudonimo Giuseppe Bessarione. Facebook, 26 Febbraio 2023</small>
+_Pseudonimo Giuseppe Bessarione - Facebook, 26 Febbraio 2023_
+
+---
 
 Avvocato! Come la onoriamo quest'anno la Santa Pasqua?
 Bangkok lei mi dice?
 Ma lei lo sa che a Bangkok si mangia di merda?
 
-<small>Pseudonimo Giuseppe Bessarione. Facebook, 26 Febbraio 2023</small>
+_Pseudonimo Giuseppe Bessarione. Facebook, 26 Febbraio 2023_
+
+---
 
 Forza Schlein!
 Già la politica è un pianto e una noia, se poi vince Bonaccini ci possiamo de plano sparare nei coglioni.
 Allora speriamo che vinca dda picciridda...
 
-<small>Pseudonimo Giuseppe Bessarione. Facebook, 25 Febbraio 2023</small>
+_Pseudonimo Giuseppe Bessarione. Facebook, 25 Febbraio 2023_
+
+---
 
 La legge di Lidia Poet è la risposta italiana a Suits, solo che è ambientato all'inizio del '900.
 Lidia Poet è stata la prima avvocatessa o avvocata o avvocato donna italiana. Si era iscritta all'albo, ma è stata subito cancellata perché a una donna fare l'avvocata non si conviene, dato che si vede il vestito frivolo sotto la toga (questa una parte della motivazione).
@@ -87,5 +95,5 @@ Qui l'avvocata fa poco diritto e molto fatto, nel senso che in pratica fa molta 
 Consiglio la visione.
 Nella foto, Matilda De Angelis
 
-<small>Pseudonimo Giuseppe Bessarione. Facebook, 23 Febbraio 2023</small>
+_Pseudonimo Giuseppe Bessarione. Facebook, 23 Febbraio 2023_
 

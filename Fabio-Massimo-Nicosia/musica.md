@@ -8,7 +8,9 @@ Birds of Fire ci prese alla sprovvista, il mio compagno di banco del Manzoni Eli
 Curiosità.
 Quando andai quell'anno in Inghilterra in vacanza, a Brighton, il ragazzo della famiglia presso cui soggiornavo mi disse che non si pronuncia Mclofling ma Macloclin, in quanto cognome scozzese.
 
-<small>Pseudonimo Giuseppe Bessarione. Facebook, 1 marzo 2023</small>
+_Pseudonimo Giuseppe Bessarione. Facebook, 1 marzo 2023_
+
+---
 
 La musica classica ha sempre preso dalla musica popolare, come dimostrano Mozart, Beethoven, Brahms, Mahler, Strawinsky e tanti altri.
 Del resto, in Grecia o a Roma nemmeno era possibile distinguere musica popolare da colta, dato che gli strumenti erano quelli, e semmai si distingueva quello bravo da quello meno bravo.
@@ -18,7 +20,9 @@ Nella modernità chi ha fuso meglio popolare con colto è stato Zappa, che io ri
 Nella contemporaneità non si distingue più troppo utilmente tra i generi, come voleva Giorgio Gaslini, quando 50 anni fa parlava di "musica totale": voglio dire che un basso elettrico non trasforma più in rock un brano classico: la classica è un'idrovora, e può assorbire qualsiasi cosa provenga dal popolare.
 In conclusione, voglio dire che abbiamo un patrimonio sterminato di canzoni e canzonette, dagli anni '50 del rock and roll a oggi, che possono essere eseguite nei modi più vari, soprattutto in modo jazzistico; ma quel che più conta è che questo patrimonio di cultura popolare si pone potenzialmente e attualmente alla base di una nuova musica classica positiva e affermativa, e non più negativa come furono le avanguardie del secondo novecento: lo stesso Cage può essere però ricompreso nella nuova musica classica totale, metti che uno entra in scena e accende un frullatore durante un assolo di organo Hammond accompagnato da un quartetto d'archi e da un quintetto di fiati...
 
-<small>Pseudonimo Giuseppe Bessarione. Facebook, 25 febbraio 2023</small>
+_Pseudonimo Giuseppe Bessarione. Facebook, 25 febbraio 2023_
+
+---
 
 Sono un vecchio battistiano, visto che ascoltai 29 settembre a 9 anni, 1967, a un juke-box insieme ai ragazzi più grandi del San Carlo (il San Carlo era bello, perché avevi magari 6 anni e stavi in vacanza con quelli di 14-15, allo Spluga o alla Bolognina di Perledo, e quindi ti portavi avanti): fino al 1971 Battisti e solo Battisti, semma i la Formula 3 che suonava Battisti.
 Battisti era considerato fascista in un'epoca in cui se non eri marxista-leninista eri fascista, mentre invece Lucio coltivava aspirazioni hippy e si conciava come Jimi Hendrix, se ricordate i suoi capelli arruffati, i suoi baffetti e i suoi foulard colorati.
@@ -29,4 +33,6 @@ Il Museo Rosenbach è stato distrutto dall'accusa di fascimo, a cagione di un bu
 Vengo al punto: si scoprì che nei "covi" delle Brigate Rosse si ascoltava Battisti e non De Andrè o Guccini, e Curcio scrisse in un suo comunicato "le discese ardite e le risalite".
 E Battisti fu sdoganato a sinistra: per il dolore ne morì...
 
-<small>Pseudonimo Giuseppe Bessarione. Facebook, 24 febbraio 2023</small>
+_Pseudonimo Giuseppe Bessarione. Facebook, 24 febbraio 2023_
+
+---

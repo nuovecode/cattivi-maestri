@@ -13,9 +13,11 @@ Come interviene per por rimedio alla deprecabile e sciagurata situazione testé 
 In alcun modo.
 Inzaghi fai pena.
 
-<small>Pseudonimo Giuseppe Bessarione. Facebook, 26 Febbraio 2023</small>
+_Pseudonimo Giuseppe Bessarione. Facebook, 26 Febbraio 2023_
+
+---
 
 Lukaku bello asciutto e con il ventre muscoloso, riprende scatto e segna un bellissimo goal, considerando anche che ha ripreso un suo colpo di testa che aveva preso il palo.
 L'Inter è forte se crede nei propri mezzi, quel coglione di Inzaghi ci ha fatto buttare via 20 minuti del primo tempo suggerendo prudenza e passaggi indietro...
 
-<small>Pseudonimo Giuseppe Bessarione. Facebook, 22 Febbraio 2023</small>
+_Pseudonimo Giuseppe Bessarione. Facebook, 22 Febbraio 2023_

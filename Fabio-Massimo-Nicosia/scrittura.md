@@ -1,10 +1,11 @@
 # La scrittura di Fabio Massimo Nicosia
 
-### Mio libro in uscita (di Fabio Massimo Nicosia)
+Mio libro in uscita (di Fabio Massimo Nicosia)
 
 Abbraccio fatale
 
 Egemonia radicale e dissoluzione della sinistra
+
 1. Paralipomeni di una batracomiomachia
 2. Passaggio da destra a sinistra tra radicalismo, renudismo e rock progressivo
 3. Alternativa di sinistra e profezie pasoliniane
@@ -61,7 +62,7 @@ _Pseudonimo Giuseppe Bessarione. Facebook, 21 Febbraio 2023_
 
 ---
 
-### "Perchè scrivo libri così buoni"
+"Perchè scrivo libri così buoni"
 
 era il titolo di uno scritto di Nietzsche, e vale anche per me.
 

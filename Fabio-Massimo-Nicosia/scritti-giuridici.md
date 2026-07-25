@@ -1,5 +1,11 @@
 # Scritti giuridici
 
+Il principio fondamentale di dignità della persona non può essere leso nemmeno in situazioni di emergenza
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 19 Febbraio 2023_
+
+---
+
 Quindi la Corte Costituzionale ha stabilito, modificando il proprio orientamento, ma dicendo falsamente che lo stava confermando, che è ragionevole e proporzionato imporre la vaccinazione obbligatoria anche se si verificano molti eventi avversi ANCHE GRAVI.
 Però sorvola sul concetto di morte, che non viene manco mentovato.
 
@@ -10,7 +16,6 @@ Secondo me loro si rendono perfettamente conto che è una follia, ma non potevan
 Lo conferma il fatto che la dizione "eventi avversi, anche gravi" è ripetuta più volte, quindi sono loro stessi ad avere fatto una cosiddetta sentenza suicida, appellabile alla CEDU ex art. 13 e disapplicabile da qualsiasi giudice dabbene.
 
 _Pseudonimo Giuseppe Bessarione. Facebook, 11 Febbraio 2023_
-
 
 ---
 
@@ -23,3 +28,17 @@ _Pseudonimo Giuseppe Bessarione. Facebook, 22 Febbraio 2023_
 Molto divertente il fatto che sono appena uscite tre sentenze fondamentali e innovative, in senso molto negativo, della Corte Cost. sui vaccini, e Corriere e Repubblica non dicono una parola perché devono parlare di Grignani e Peppino di Capri.
 
 _Pseudonimo Giuseppe Bessarione. Facebook, 10 Febbraio 2023_
+
+---
+
+Sto leggendo un libro sulla soft law, ossia sul diritto morbido in quanto privo di sanzione, che opera nel mercato, nelle organizzazioni internazionali e non solo.
+Ad esempio, i libri bianchi e verdi della commissione europea sono considerati soft law, così come la lex mercatoria, che oggi si rinnova.
+
+Mi è venuto in mente Bruno Leoni, il quale contestava che il diritto fosse obbligo giuridico, affermando trattarsi di scambi di pretese sul mercato.
+
+Mi è venuto anche in mente il concetto di libera ricerca del diritto, legato al concetto di giusliberismo, nel senso che io in una causa, se non si trova una soluzione nel nostro ordinamento, posso trovarla invocando il diritto finlandese, islamico o della Papuasia.
+Altro che "regolamentare tutto", come diceva Pannella nella sua fase peggiore, o come dicono i fissati che su qualsiasi cosa invocano "una legge", "ci vuole una legge"
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 19 Febbraio 2023_
+
+

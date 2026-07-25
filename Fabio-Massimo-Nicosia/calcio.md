@@ -70,3 +70,34 @@ I fuorigioco di un cm non valgono nulla, dato che non v'è certezza sull'attimo 
 In quanto tifoso di Lukaku, l'ho visto in netta crescita: bello quando è caduto, e ha fatto in tempo a rialzarsi, tirare e quasi segnava.
 
 _Pseudonimo Giuseppe Bessarione. Facebook, 6 Febbraio 2023_
+
+---
+
+Dichiarazione vera di Inzaghi: "Abbiamo perso che Handanovic non ha fatto neanche una parata".
+
+Ehm, caro, il punto è proprio questo, che le parate le deve fare.
+
+Per il resto si era partiti anche bene, confermando la mia tesi che senza Brozovic si gioca meglio e più spediti, dato che il ritardato non fa che rallentare il gioco e correre indietro.
+
+Asslani sicuramente meglio del ritardato, ma non è nemmeno questo il punto: basta che il ritardato non ci sia che già il gioco scorre di più in avanti.
+
+Ma se in porta teniamo un paracarro, o se preferite un corazziere sempre sull'attenti, poi basta questo per perdere.
+
+Inzaghi, testa di cazzo, vattinne.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 2 ottobre 2022_
+
+---
+
+Ricapitoliamo.
+
+La volta scorsa Handanovic fa tre parate-laser, vale a dire prende tre goal, uno come un bambino dell'asilo.
+
+Inzaghi lo conferma, e Handanovic fa altre due parate-laser, ossia prende due goal stando fermo, anzi, uno buttando lui la palla in rete.
+
+Benissimo.
+
+Ora Inzaghi può prendersi la sua pensione da invalido psichico e Handanovic quella di vecchiaia, MA P*** D*** ANDATEVENE FUORI DAI COGLIONI!!!!
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 2 ottobre 2022 (censura per evitare ban)_
+

@@ -1,16 +1,5 @@
 # Personale
 
-Con Rossella facciamo dei progressi mostruosi.
-
-Stasera abbiamo fatto una lunghissima chiacchierata su quelli che sono stati i nostri problemi molto lontani nel tempo, che ci hanno condotto alla separazione, ivi compresi i problemi di gestione del povero Riccardo.
-Non abbiamo mai avuto prima di stasera un confronto così ampio e franco, svolto con pacatezza e completezza, senza che nessuno dei due si innervosisse.
-
-Tutto è iniziato perché oggi abbiamo avuto un paio di discussioni, e allora per chiarirci il discorso si è di molto allargato
-
-_Pseudonimo Giuseppe Bessarione. Facebook, 27 Febbraio 2023_
-
----
-
 Visto che Marco Bassani, che mi ha bannato e mai sbloccato come Fabio Massimo Nicosia, e però qui interviene, mette in dubbio la mia intelligenza, riprendendo antiche polemiche di venti anni fa, che l'hanno visto sconfitto, in quanto fuggitivo dalla discussione mentre diceva cazzate paleo-libertarie (del tipo che l'ABC del libertarismo consente a un condominio di cacciare gli omosessuali), riporto qui un giudizio formulato dal prof. Omar Chessa nei confronti del mio libro "L'eguaglianza libertaria".
 
 “Questo è un libro impossibile da sintetizzare nelle poche battute di una conversazione radiofonica. C’è una grande interdisciplinarietà che sconcerta. Un po’ come i grandi classici del pensiero gius-politico. Penso soprattutto al Leviatano di Hobbes. Il libro di un filosofo, di un sociologo, di un antropologo, di un filosofo morale, di un economista. Tutte queste discipline mescolate assieme, tutte con il giusto livello di approfondimento. Poi si prenda il lavoro di Adam Smith, era economista, ma era anche filosofo morale. Ecco, mi sembra che Nicosia riesca veramente a tenere assieme in maniera egregia tutte queste sfere della riflessione del pensiero umano. Del resto, sono temi che devono essere trattati con questo taglio interdisciplinare, e quindi non basta la competenza del giurista, del giuspubblicista, ma occorre anche quella del filosofo, dell’economista, del sociologo e anche alla fine quella dell’antropologo, perché poi (segue dissertazione sulla distinzione di Nicosia tra portatori di “inclinazione libertaria” e portatori di “inclinazione autoritaria”)… Direi un libro di UN AUTORE ORMAI IMPRESCINDIBILE, non soltanto alla luce di questo libro, ma anche di quelli precedenti, che ho letto e ho trovato molto stimolanti”.
@@ -18,16 +7,6 @@ Vale a dire che Chessa mi ha messo SULLO STESSO PIANO DI ADAM SMITH E HOBBES per
 
 Quando ciò capiterà a Marco Bassani ce lo farà sapere, visto che sono trent'anni che scrive di Jefferson e di federalismo americano.
 Sarebbe come se io da trent'anni avessi scritto solo di mutamento di destinazione d'uso degli immobili.
-
-_Pseudonimo Giuseppe Bessarione. Facebook, 20 Febbraio 2023_
-
----
-
-Con Rossella stiamo costruendo un rapporto eccezionale -anche se talora ho talune riserve sulla sua cucina-, che si esprime in conversazioni infinite su tutto.
-
-Rievochiamo il passato, anche autocriticamente, parliamo di qualsiasi tema di attualità, la coinvolgo sulle questioni teoriche e si sta appassionando, oggi ci siamo detti delle cose mai dette su quando eravamo compagni di scuola, su quando abbiamo cominciato a frequentarci, su quando è nato il povero Riccardo con le difficoltà che ha avuto, eccetera.
-
-Veramente qualcosa di bello
 
 _Pseudonimo Giuseppe Bessarione. Facebook, 20 Febbraio 2023_
 
@@ -61,3 +40,48 @@ _Pseudonimo Giuseppe Bessarione. Facebook, 12 Febbraio 2023_
 
 ---
 
+Non sono mai stato un fan sfegatato di Fabrizio de Andrè, però mi ha sempre affascinato la sua voce bassa e profonda.
+
+Io associo quel tipo di voce ai sessantottini che conobbi da bambino, dato che, chissà perché, nel mio immaginario, il sessantottino borghese milanese ha la voce bassa e profonda.
+
+In particolare, associo la voce (e anche il tipo fisico) di De Andrè a un mio conoscente di allora, "Ninni", Gianmaria Grimaldi, figlio e nipote di due amiche di mia mamma.
+
+Queste amiche furono conosciute da mia mamma da piccola a Palermo, perché loro padre era un Pastore metodista, che quindi si spostava, non era originario di Palermo.
+
+Poi si trasferirono a Milano.
+
+Io mi sono sempre fatto vanto di questa conoscenza, perché mi faceva bello di essere quasi imparentato con una famiglia metodista, mi dava un senso di apertura mentale.
+
+Ecco, "Ninni", laureato in teologia e sessantonino la sua parte, divenne a propria volta Pastore, e tutto ciò mi appariva una figata.
+
+Poi i metodisti si fusero coi valdesi, e la figata divenne doppia.
+
+Ninni però lo persi di vista, il "Pastore Grimaldi", dato che girava l'Italia in funzione del suo Uffizio.
+
+Un momento commovente fu quando morì Franz, il padre di Ninni, e andai alla cerimonia funebre, in cui intonarono canti biblici tra i pianti di tutti, compreso il mio e quello di mia madre. 
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 2 Febbraio 2023_
+
+---
+
+Un episodio che mi è tornato in mente.
+
+Io da piccolo ho studiato un po' pianoforte, sono arrivato a suonare, oltre agli esercizi, qualche canzone come "Un'ora fa" e "Scende la pioggia" con lo spartito, ma non sono mai diventato bravissimo e smisi.
+
+Anni fa mi è capitata come cliente una pianista professionista, che aveva e ha inciso anche dischi di musica classica. Allora le chiesi se poteva pagarmi con qualche lezione di piano.
+
+Lei era bella, ma soprattutto aveva una casa della madonna, con tanto di pianoforte a coda in salotto, in centro a Milano.
+
+Allora un giorno arrivai con un libro con gli spartiti di brani di Zappa.
+
+Volevo cimentarmi con Uncle Meat.
+
+Lei guardò lo spartito, e segnò tutte le diteggiature che mi suggeriva per potere eseguire più agevolmente il brano.
+
+Dopo vari tentativi, riuscii a fare bene anche il passaggio più difficile, quello coi tuplets.
+
+Allora lei urlò forte. "Bravooo!".
+
+E io mi misi a piangere a dirotto
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 2 Febbraio 2023_

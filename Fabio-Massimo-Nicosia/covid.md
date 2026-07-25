@@ -60,4 +60,19 @@ Escono dunque le sentenze della Corte Cost sugli obblighi vaccinali: hanno detto
 
 _Pseudonimo Giuseppe Bessarione. Facebook, 10 Febbraio 2023_
 
+---
+
+Oltre che inveire contro l'insipienza dei giovani occupanti il liceo Manzoni, tutti preoccupati per le sorti della democrazia e per l'incombente fascismo, dovremmo interrogarci seriamente come sia accaduto che a codesti giovani, certamente poco svegli, siano apparsi acqua fresca stato di emergenza, DPCM, lockdown, coprifuoco, mascherate carnascialesche, green pass, green pass rafforzato, limitazione acquisto a beni "essenziali", obblighi vaccinali al di là dei limiti costituzionali, sospensione dal lavoro senza retribuzione, divieto di accesso ai sani sul treno, etc., ossia come mai ciò non sia apparso loro un massacro fascista della Costituzione e dei diritti fondamentali
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 28 settembre 2022_
+
+---
+
+Dovremmo costituire il comitato No Ronzx, per non ritrovarci quella vaiassa ministra della salute.
+
+Le ragioni della sua nomina possono essere sia la necessità di Silvio di piazzare una sua badante, sia il fatto che Mattarella voglia mettere una nemica dei no map.
+
+Dobbiamo fare resistenza preventiva contro questa fruttarola che ci ha insultato per mesi.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 27 settembre 2022_
 

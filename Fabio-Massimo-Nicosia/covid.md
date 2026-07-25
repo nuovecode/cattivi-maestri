@@ -7,9 +7,10 @@ _Fabio Massimo Nicosia - Profilo personale, 28 marzo 2020_
 
 ---
 
-“Che cosa avrebbe fatto il dittatore libertario di fronte al Covid?
+Che cosa avrebbe fatto il dittatore libertario di fronte al Covid?
+
 Avrebbe soprattutto diffuso e favorito la massima diffusione delle informazioni (quindi niente segreti e ampia critica alle informazioni provenienti dall'alto), sulla base delle quali ognuno avrebbe potuto prendere la propria migliore decisione individuale, dalla quale sarebbe emersa, per sommatoria delle scelte individuali, una "scelta pubblica", per fonte individuale e associata, per emersione, quindi una scelta pubblica frastagliata e a caleidoscopio, prendendo provvedimenti coercitivi solo in casi eccezionali, che siano davvero qualificabili “legittima difesa” o "stato di necessità".
-Se non c’è legittima difesa o stato di necessità, per un libertario, non sono legittimi provvedimenti coercitivi in nome di un generico e strumentale principio di precauzione: una comunità ha tutto il diritto di scegliersi (per emersione dalle condotte individuali) il proprio livello di rischio e il proprio livello di sicurezza.”
+Se non c’è legittima difesa o stato di necessità, per un libertario, non sono legittimi provvedimenti coercitivi in nome di un generico e strumentale principio di precauzione: una comunità ha tutto il diritto di scegliersi (per emersione dalle condotte individuali) il proprio livello di rischio e il proprio livello di sicurezza.
 
 _Fabio Massimo Nicosia - Laboratorio Libertario 21 agosto 2020_
 

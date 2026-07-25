@@ -6,5 +6,7 @@
 - [Partito Libertario](./partito-libertario.md)
 - [Il calcio e l'inter](./calcio.md)
 - [Covid](./covid.md)
+- [Politica Italiana](./politica.md)
+- [La vicenda psichiatrica](./vicenda-psichiatrica.md)
 - [Personale](./personale.md)
 - [Varie](./varie.md)

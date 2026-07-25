@@ -120,3 +120,63 @@ Per fare ciò ci vorrebbe un autentico utile universale, ma tutto il descritto c
 Mentre in base al ragionamento di Renzi, l'unica competizione che ci può essere è quella del dumping tra riders.
 
 _Fabio Massimo Nicosia - Laboratorio Libertario 2 agosto 2021_
+
+---
+
+La prova di quanto sia stata fallace e inefficace la campagna del PD contro il fascismo in agguato è data dai risultati della mia zona, Nord Milano, Sesto San Giovanni, Cinisello Balsamo, e non do giudizi di valore, mostro il brutale fatto:
+
+Emanuele Fiano, di famiglia ebrea perseguitata, battuto nettamente da Isabella Rauti, ripeto, Rauti, senza che a nessuno sia fregato della famiglia perseguitata e del fatto che Rauti avesse addirittura osteggiato la svolta di Fiuggi.
+
+A beneficio di Rauti, preciso che ha scritto una storia del fascismo in più volumi ricca di spunti interessanti, pur se di parte
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 26 settembre 2022_
+
+---
+
+Quando una sinistra fuxia incontra una donna Dio-patria-famiglia, la sinistra fuxia è un uomo morto.
+
+Io l'avrò scritto tre settimane fa che dopo il voto sarebbero iniziate le autocritiche dei metrapansé del PD sull'eccessiva enfasi data al "pericolo fassista".
+
+Perché loro sono intelligenti e se ne accorgono a cose fatte che non possono fare 20 giorni di fila di campagna sul matrimonio egualitario contro una che ha appena detto di essere per le unioni civili.
+
+Qui siamo di fronte a chiari deficit cognitivi del mondo semicolto, più scadente di quanto io stesso avessi teorizzato.
+
+Ora su Tik Tok gli agit-prop del fuxismo teorizzato e praticato smontano le tende e vanno mestamente alle case, come diceva mia zia Graziella da Carini
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 26 settembre 2022_
+
+---
+
+La Meloni sta facendo progredire incredibilmente le lotte per i diritti civili in Italia.
+
+Infatti, quando ha detto che è per le unioni civili, tutti hanno risposto "Quella buttana della Meloni è per le unioni civili, quando è ovvio che ci vuole il matrimonio egualitario".
+
+E da quando ha detto che bisogna tenere la 194 sull'aborto, non si contano quell* che hanno risposto "Quella buttana della Meloni vuole conservare la 194 così com'è, quando è ovvio che bisogna andare oltre".
+
+Fu così che il PD si rimangiò 45 anni di affermazioni per accogliere quelle radicali del 1978.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 22 settembre 2022_
+
+---
+
+Il movimento LGBTQIAplus vuole vincere la sua battaglia mettendo fuori legge le tesi a esso avverse.
+
+Lo so che non è un concetto nuovo.
+
+Tuttavia, ne abbiamo avuta plastica rappresentazione l'altro giorno nell'iniziativa di quel consigliere comunale di Milano, il gay responsabile del settore "diritti civili" del PD di Milano (figurati se era il responsabile del settore "repressione"), il quale ha fatto rimuovere un cartellone che semplicemente diceva "non confondete la sessualità dei bambini":
+
+Riescono a tale risultato pur in assenza di DDR Zan, dato che esiste sontuosa normativa sulla cartellonistica stradale, la quale punisce l'"omofobia" sui cartelloni.
+
+Quindi quella frase sarebbe "omofoba", pur se gli omo nemmeno li nomina.
+
+Il che la dice lunga su quali sono i veri obiettivi del DDR Zan, ove mai fosse approvato.
+
+No, questo perché Zan si sgola a dire che il suo DDR non limita la libertà di parola, ma combatte solo le discriminazioni.
+
+Ma se poi, nemmeno passando per il giudice, ma per la sola pubblica amministrazione, il funzionario può definire "discriminazione omofoba" quel che gli pare, ecco che qualsiasi affermazione non conforme alla linea LGBTQIA+ diviene affermazione illegale.
+
+Quando tutte le affermazioni loro contrarie saranno illegali, ecco che allora gente come quel consigliere comunale potrà dire "la libertà e i diritti hanno trionfato".
+
+Brutta gente davvero.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 19 settembre 2022_

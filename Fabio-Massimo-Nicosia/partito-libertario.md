@@ -74,3 +74,45 @@ Singori, vi parrebbe normale non essere presenti a questo evento di portata stor
 Ben sapete come il Partito Libertario sia l'unico degno di nota presente su piazza, quindi venite: pagando l'ingresso, acquisite diritto di voto, dato che noi siamo aperti al mondo...
 
 _Pseudonimo Giuseppe Bessarione. Facebook, 16 Febbraio 2023_
+
+---
+
+Cari, abbiamo in corso un bel rilancio del Partito Libertario.
+
+Abbiamo fatto bene a non farci abbagliare dalla scadenza elettorale, non essendo noi ancora maturi per far nulla al riguardo in questa fase.
+
+Noi ragioniamo sui tempi lunghi, anche se sui tempi lunghi saremo tutti morti.
+
+Tuttavia arriverà qualcuno nel frattempo, o no?
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 21 settembre 2022_
+
+---
+
+Demonizzazioni elettorali, trinariciuti e prospettive del Partito Libertario
+
+Puntuale e prevedibile come una parata-laser di Handanovic, la campagna elettorale del PD di Letta è subito partita lancia in resta agitando il pericolo fassista meloniano e "delle destre".
+
+Subito scrissi che il PD andava festante incontro alla disfatta -avremo a breve conferma o smentita-, non perché io sia dotato di fiuto particolare o perché mi stiano sul culo da sempre le forme antifassiste, ma perché ho già vissuto la vicenda Berlusconi del 1994, e quindi mi chiesi se l'entourage propagandistico lettiano fosse composto da ritardati, o puramente e semplicemente il medesimo non avesse alternative.
+
+Senonché, affermato il carattere fassista delle prospettive meloniane, quel carattere andava pur dimostrato o argomentato, e non si è trovato di meglio che rinvenirlo nel "sono una mujer, non sono una santa, non tentarmi non sono una santa, pur se madre e cristiana", e allora subito si è proposta l'equazione tra l'essere fassista e non amare gli LBGTQIA+ e tutti cazzi che te frecheno che ne conseguono.
+
+Troppo poco, in verità, ridurre il fassismo a non volere le adozioni gay, lo vede chiunque, epperò che altro può una sinistra fuxia, alla quale il vincolo esterno e l'adesione a Maastricht preclude alcuna altra polemica o iniziativa, che non sia quella rosée dell'union sacrée del politically correct, della sirenetta pittata di nero, come l'angioletto negro di Fausto Leali ("pittore ti voglio parlare"), per cui le magnifiche sorti, e progressive, della sinistra combaciano in toto con quelle delle multinazionali dello showbiz?
+
+E allora la demonizzazione antifassista è così proseguita, che per giorni e giorni su Tik Tok non si è parlato altro che del futuro del frocialismo, come lo chiamava il militante gay radicale Nicolino Tosoni, ultimo rampollo ormai scomparso di una storia e di una scuola di stravaganti.
+
+Ora, sulla piattaforma cinese giovane che piace alla gente che piace dei giovani che piacciono il tormentone è leggermente calato, e tuttavia ancora la Boldrini gira il Pavese in tournée a parlarci dei "diritti" LGBTQIA+, salvo avere noi qui già visto come quella concezione dei "diritti" sia concezione di imposizioni e pene per gli altri, non mai di diritti uguali per tutti, perché allora dovresti batterti per ampliare la libertà di tutti, invece vivi la tua libertà come un gioco a somma zero, in cui alla tua libertà deve corrispondere l'oppressione mia, la messa fuorilegge di ogni pensiero che non sia identico al tuo, e tu chiami ciò tuo "diritto", il che già Simone Weil aveva in uggia come concetto, tema sul quale tornerò in altra sede.
+
+Perché, mentre la libertà di Bakunin è quella per cui la mia inizia dove comincia la tua, perché si può essere liberi solo insieme in uno spazio comune, la tua "libertà" a somma zero elide la mia e si rivela mera coercizione.
+
+E DEL RESTO A SINISTRA NON C'E' UN CAZZO DI PARTITO O PARTITINO CHE STIA CRITICANDO EMERGENZA, GREEN PASS E COMPAGNIA CANTANTE, ivi compresi gli inutili Fratoianni, Bonelli e Ilaria Cucchi, quella delle "mele marce".
+
+Va risottolineato: nessun partito o movimento antifassista, pro gay, pro choice, anti-mujer, non cristiano, non Dio-patria-famiglia, sta facendo autocritica sull'emergenza e sulla trasformazione dei diritti fondamentali in interessi semplici nell'ambito del modello aziendalistico draghiano, per il quale non esiste "stato di diritto", ma libera amministrazione degli stazionanti sul suolo nazionale, alla stessa stregua di come un proprietario amministra la proprietà sua.
+
+Nessun partito o movimento antifassista e tutto il resto ha preso le distanze dai progetti di digital wallet di Colao, nemmeno Fratoianni, Bonelli e l'inutile Ilaria Cucchi, mentre alla Boldrini in tournée non le passo manco p'a capa che il fatto possa costituire pobbema.
+
+In questo quadro, vorrei dire a chi legge transitando per il Partito Libertario, si aprono praterie a sinistra, dato che il giovane Tiktokkista, pur minoritario dal punto di vista statistico-demografico, è indice di una modificazione antropologica che ha introiettato la secolarizzazione in modo irreversibile -e questo resterà il punto debole della Meloni-, e allora vale la strategia del Pannella anni '70, per la quale ci si opponeva con durezza alla sinistra, ma rivendicando il proprio essere di sinistra, un'altra sinistra, salvo poi valutare se il termine sia utile o no.
+
+Perché l'altro elemento da segnalare di questa campagna elettorale è che, usuratosi l'antifassismo, consumatasi la fulminea stagione LGBTsticazzi, ora assistiamo al crescere di Conte e dei 5stelle in nome del "reddito", e il Partito Libertario ha molto da dire in tutto questo ambito, con l'idea dell'utile universale da valorizzazione del demanio e del capitale comune, il che, però, reca con sé implicita una strategia anti-tasse che non può essere dei 5stelle, dato che, per noi, o dai o prendi, non puoi prendere e dare allo Stato contemporaneamente: se prendi reddito, rendita e utile dal capitale comune, va da sé che tasse non ne devi pagare: il nostro luminoso futuro sta in questa quadratura del cerchio
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 19 settembre 2022_

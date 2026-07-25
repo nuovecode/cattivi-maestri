@@ -8,3 +8,9 @@ Quindi ciascun usufruttuario versa un canone a se stesso in quanto nudo propriet
 _Pseudonimo Giuseppe Bessarione. Facebook, 27 Febbraio 2023_
 
 ---
+
+Sto preparando la mia prossima conferenza libertaria, la terza, che dovrebbe intitolarsi "Il geo-anarchismo tra proprietà individuale e comunità".
+
+Ci vediamo lunedì sera.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 20 settembre 2022_

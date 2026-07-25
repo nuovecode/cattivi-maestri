@@ -1,6 +1,5 @@
 # Cospito e il 41 bis
 
-
 La cosa più interessante della vicenda Cospito è che il ricatto anti-mafioso sta funzionando pochissimo, ad esempio nei confronti del mondo anarchico, e a quanto pare nei confronti degli studenti della Sapienza.
 
 Forse la mafia viene percepita come qualcosa di non più molto attuale, nonostante MMD, o forse proprio per questo.

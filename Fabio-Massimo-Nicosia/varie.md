@@ -60,8 +60,6 @@ _Fabio Massimo Nicosia - Laboratorio Libertario 20 aprile 2024_
 
 ---
 
-### In ricordo di Paolo Ranieri.
-
 In ricordo di [Paolo Ranieri](../Paolo-Ranieri/index.md)
 
 Paolo Ranieri non era un banale "amico di Facebook", anche se io lo incontrai in prima battuta in veste informatica, ma era la seconda metà degli anni '90, e capitammo entrambi in una mailing list che si chiamava "Libertari". Al contempo stavo in un'altra mailing list, "Libertari.it", ed era la mailing list del gruppetto anarco-capitalista di allora, quello da cui poi è scaturito l'Istituto Bruno Leoni, con un diciottenne Alberto Mingardi e tutti gli altri, ma la mailing list dove c'era Paolo era molto più bella e divertente, perché eravamo tutte persone diverse, tutti "anarchici" ognuno con la sua follia personale, mentre gli anarco-capitalisti erano piuttosto standardizzati (tranne me, che infatti creavo scompiglio).
@@ -406,4 +404,181 @@ _Pseudonimo Giuseppe Bessarione. Facebook, 27 settembre 2022_
 
 ---
 
+Gli studenti del Liceo Manzoni (che io ho frequentato nel biennio ginnasiale) hanno occupato la scuola per protestare contro il risultato elettorale.
 
+Penso sia un unicum, penso sia la prima volta nella storia che si manifesti contro un risultato elettorale.
+
+Di fronte a così "tanta roba" non mi pronuncio, ci devo pensare.
+
+Nemmeno nel 1968 si faceva una roba del genere, si manifestava e occupava sempre a partire da un concreto provvedimento governativo, per poi contestare "capitalismo" e "scuola di classe", ma non credo nemmeno che si facessero manifestazioni anti-capitaliste se non partendo sempre da un provvedimento specifico.
+
+Quindi o siamo di fronte a un colpo di genio, o a una manifestazione dell'ignoranza del post-moderno.
+
+Taccio sui fatto che se avesse vinto Calenda con l'agenda Draghi-Speranza non l'avrebbero fatto, ma questo è un altro discorso, quello per cui questi studenti, come molta altra gente, in questi due anni è stata assente con la testa.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 27 settembre 2022_
+
+La nostra qualità della vita migliorerà di colpo, dato che avremo nel mondo e in patria una quantità di forze guardiane sul rispetto dei diritti umani nel nostro pavese, da ultimo la premier francese.
+
+Uora uora si svegliarono, finora non avevano nulla da dire sulla dittatura sanitaria della scimmia al ministero della salute, ma qui è questione di modo di sentire.
+
+Un libertario sente a pelle quando sono violati i diritti fondamentali, questa gentaglia no, va a convenienza politica, loro chimano  "diritti fondamentali" il politicamente corretto.
+
+La famosa guerra delle parole.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 26 settembre 2022_
+
+---
+
+L'autoinganno della bolla Draghi e Giggino 'o bibbitaro di ritorno
+
+Pannella diceva che i mass-media e i politici di regime erano talmente abituati a fornire rappresentazioni della realtà di pura fantasia, che alla fine credevano essi stessi alle balle che raccontavano.
+
+La bolla Draghi è stata un caso di primo piano di questo fenomeno, fino al recente premio di statista dell'anno, non si sa bene rilasciato da chi, e soprattutto non si sa bene perché: anche questa è una bolla, si può sapere che cazzo ha fatto Draghi di buono con il suo governo?
+
+Non lo sa nessuno, nessuno ha visto un cazzo. E tuttavia per mesi la stampa appecoronata non ha fatto altro che parlarci di questo miracolo Draghi, amato e osannato in tutte le cancellerie del mondo, il che già è sospetto, con i suoi annessi boom economici, i suoi bonus a raffica, la sua lotta indefessa alla pan-demenza, il suo controllo completo sulle vicende belliche ed energetiche: un grande direttore davvero, direbbe Fantozzi.
+
+Il culmine e il top sono stati però raggiunti quando qualche cattivone ha fatto cadere Draghi (ossia lui stesso che si è dimesso senza obbligo), e allora quel supposto cattivone è stato additato come nemico del popolo, giacché faceva cadere questo grande, al punto tale che giornali come la Repubblica si sono inventati (ma loro ci credevano, fa parte dell'autoinganno) che le masse popoloari e le genti italiche, dai vitelli calabri ai galli e ai celti corno-dotati del nord-ovest, stavano facendo come quei pinguini che corrono tutti insieme al suicidio, mentre, invero, non gliene stava sbattendo una minchia a nessuno.
+
+Non solo: la stampa è riuscita persino a ravvisare MANIFESTAZIONI POPOLARI a sostegno di Draghi, e tanto ci credevano che non tenevano scuorno pure a pubblicare le fotografie con 8 persone e una bandierina ucraina, in genere qualche ritardato di radicaloide proNato, proUe, proTutto.
+
+Orbene, chi se non Giggino 'o bibbitaro poteva cadere più di altri nell'autoinganno, stante la lungimiranza politica di questo autodidatta della politeia?
+
+Avendo lui lumato che Draghi ormai aveva il vento in poppa, mentre i 5stelle, avendo perso ogni dignità sotto la sua guida, ormai viravano verso l'estinzione, che cosa mi fa il geniaccio? Una scissione draghiana dai 5stelle, per fare morire i 5stelle cattivi e, soprattutto, salvare 'o culo proprio.
+
+Ghe nient de fa, sa pigghiò intu culu, perché un bibbitaro è per sempre.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 26 settembre 2022_
+
+---
+
+Formigli al di là del bene e del male, non ci sono più parole.
+
+Fa un'intera trasmissione dando addosso alla Meloni per avere chiesto alla Lamorgese di prevenire incidenti nei suoi comizi, dove tutti hanno fin qui avuto accesso come se fosse il mercato comunale, nel timore che, ove si fossero scatenati incidenti, lei ci avrebbe rimesso elettoralmente, preoccupazione lecita e sensata per un politico.
+
+E il Formigli chiama il figlio del poliziotto che ha buttato fuori dalla finestra Pinelli, un giornalista prezzolato del Corserva, che scrive un libro su Mussolini dietro l'altro negli ultimi due mesi, per dire che sono tutti molto preoccupati per la libertà di manifestazione con Meloni al governo, affermando la novità che è perfettamente legittimo e normale che si vada nelle manifestazioni altrui a contestare con rischio di provocare incidenti.
+
+Perfettamente normale, ok: prova ad andare a una manifestazione di Letta a vedere se ti fanno entrare o se non ti prendono a bastonate, imbecille.
+
+Dovevi provare ad andare a un comizio di Berlinguer a vedere se ti facevano andare sotto il palco a contestare, doppio imbecille, o se non ti prendevano a mazzate.
+
+Ma il Formigli, porco di dio, che cosa ha detto quando Lamorgese ha vietato tutte le manifestazioni no green pass, sostanzialmente per sempre, l'anno scorso?
+
+Che cosa ha detto degli idranti di Trieste?
+
+Formigli sei la merda più merda, sai perché?
+
+Perché sai di esserlo visto che sei in piena malafede
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 23 settembre 2022_
+
+---
+
+Apprendo dalla Repubblica -l'unico giornale con il quale riesci a incartare il pesce pur essendo on line- che in Italia i bambini più intelligenti sono considerati un problema.
+
+Infatti non socializzano, sti disgraziati.
+
+Hanno anche bisogno di insegnanti "speciali", vale a dire che sappiano l'Italiano e siano muniti dei rudimenti dell'istruzione, a differenza di quanto accade nella più parte dei casi.
+
+Il ministero si è "dotato" di procedure stringenti per affrontare questi casi di eccentricità, l'alunno intelligente che (sto vigliacco) ha bisogno di insegnanti intelligenti e di non sentirsi raccontare cazzate dalla mattina alla sera.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 22 settembre 2022_
+
+---
+
+Ancora contro il movimento LGBTQIA+ (il che non significa contro "gli omosessuali")
+
+Non ho la fissazione di costoro, semplicemente li considero il paradigma del peggio ideologico in circolazione e li combatto di conseguenza, speculari al draghismo del "se non ti mappini muori", e del resto è gente che non ha eccepito alcunché al draghismo, visto che ne condivide la mentalità autoritaria.
+
+Tutto ciò non ha niente a che fare con l'essere contro gli omosessuali o chi compie o ha compiuto "atti omosessuali", quorum ego, visto che, come diceva il compianto Giovanni Tarello, i movimenti di tutela degli interessi sono sovente tutori del controinteresse, allo stesso modo di come i sindacati gialli ufficiali (CGIL etc.) sono i primi nemici dei lavoratori, come dimostrano le sghignazzate della Camusso alle tavolate con Monti (scena orwelliana tratta direttamente da "La fattoria degli animali").
+
+I radicali pannelliani degli anni '70 -che sono i "miei" radicali, quelli con i quali mi sono formato negli anni della mia adolescenza- attrassero, tra gli altri, le attenzioni di Baget Bozzo e soprattutto Pasolini.
+
+Il primo, da cristiano, sosteneva che l'identificazione di Pannella con gli emarginati e gli ultimi della società -cosa che Pannella esprimeva in modo abbastanza marginale in termini quantitativi, e che gente come Re Nudo o la stessa Lotta Continua facevano in termini più massivi, Re Nudo in particolare con la musica rock progressiva, autentico collante giovanile nella fase che dal post-68 conduce al movimento del '77-, indicava la necessità di lenire i danni della "società radicale", ossia dela società secolarizzata, consumistica e de-cristianizzata, dando a tale nichilismo -per cui Vattimo stesso in quella fase gravitò attorno ai radicali- un'improbabile valenza morale; per cui i radicali rappresentavano una sorta di specchio del "partito cristiano al potere", sotto il cui regime quella scristianizzazione era avvenuta, andando ad applicare pannicelli caldi ai danni arrecati dalla scristianizzazione stessa.
+
+Al contempo, Pasolini, che negli ultimi anni intrattenne serrato dialogo con Pannella, lasciò come legato ai radicali il suo ultimo scritto, che fu letto al congresso del 1975 il giorno dopo la sua morte cruenta; Pasolini scrisse: "Caro Pannella, cari radicali, dovete temere il momento in cui i "vostri" diritti civili verranno presi in mano dagli intellettuali marxisti e dalla sinistra: in quel preciso momento, i vostri "diritti civili" diventeranno un'autentica merda, in quanto mera espressione del conformismo sinistrese" (le parole non erano esattamente queste).
+
+La cosa triste è che gli odierni radicali sono parte palese di questo conformismo sinistrese, pur dovendosi ritenere che ben sappiano del monito pasoliniano di allora, tant'è vero che chi ha seguito un pochino dall'interno le cose radicali negli ultimi anni di Pannella in vita, sa che tutte le tematiche oggi dette fuxia passarono in secondo piano -Pannella preferiva occuparsi di carcere e di giustizia-, salvo essere rilanciate a Pannella defunto, sia pure in tal modo "nuovo", ossia horribile dictu.
+
+Il movimento LGBTsticazzi nostrano è però, va considerato, solo una miserabile declinazione locale del più generale delirio statunitense e nord-europeo in materia di cancel culture e politically correct, quello per cui vengono linciati nei campus docenti che hanno qualcosa da ridire su quel repertorio di cazzate, o vengono processate, anche in Europa, persone, donne, che affermano che "le donne partoriscono", ovvero "sono le donne a partorire", ovvero ancora "se una partorisce vuol dire che è una donna".
+
+In America c'è pieno di docenti ritardat* che sostengono che tutto ciò è discriminatorio, e il grave è che noi ne parliamo come se non fossero puri fenomeni folkloristici, che qualcuno additerebbe come degenerazioni del capitalismo, ad esempio il compagno Iosif Vissarionovič Džugašvili (Giuseppe Bessarione) e il compagno Mao Zedong sicuramente si sarebbero espressi in questi termini.
+
+Scherzi a parte, non torno su cose già detto.
+
+Questo scadente movimento LGBTsticazzi ha una concezione della "libertà" e del "diritto" totalmente distorta e deturnata, tal per cui i loro "diritti" sono costrizioni nei confronti degli altri, in una concezione a somma zero e non a somma positiva, come dovrebbe essere un'autentica concezione della libertà: loro vivono il "diritto" come fatto puramente polemico (nel senso di πόλεμος, ossia per fare la guerra agli altri, o anche solo per rompere il cazzo agli altri, imponendo tecnicamente una dittatura, dato che le idee avverse non vengono solo combattute sul piano culturale, ma si pretende siano messe fuorilegge in quanto "omofobe", essendo poi loro il dominus che stabilisce cosa sia omofobo e che cosa no: come disse Goebbels a Fritz Lang, il quale gli faceva presente che, essendo ebreo, non poteva collaborare con il Reich, e allora Goebbels rispose: "Dott. Lang, non faccia l'ingenuo, siamo noi a stabilire chi è ebreo e chi no".
+
+Ebbene, chiudo ricordando Simone Weil, la quale ci diceva come il diritto abbia in sé l'evocazione ragionata dell'uso della forza, chi invoca diritti, in fondo, non fa che invocare l'uso della forza per sé -laddove San Francesco non avrebbe mai invocato il "diritto", ma solo l'amore-, e costoro lo fanno con arroganza, senza senso del limite, solo per schiacciare l'avversario.
+
+Il diritto, dice Weil, nasce sempre come "abuso del diritto", come privilegio rivendicato, e chi passa la vita a rivendicare privilegi è una brutta persona.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 21 settembre 2022_
+
+---
+
+
+La Repubblica ci informa quotidianamente sui potentati politico-economici interni e internazionali che fanno con apprensione il tifo per la "sinistra" e temono come la peste la vittoria della "destra".
+
+A me questo fa molto ridere, dato che vengo da epoche in cui i potentati tifavano destra e temevano la sinistra, quindi viene il sospetto che sia successo qualcosa che viene poco indagato e spiegato.
+
+Infatti, in realtà, non mi fa ridere tanto questo, dato che lo so che oggi è così, quanto il fatto che gente di esperienza glissa elegantemente sul fenomeno e lo trova normale, per cui questo continua a non essere ben spiegato all'opinione pubblica.
+
+Poi Letta se ne vanta pure, capirei Renzi.
+
+Tralascio su fatti folkloristici legati ad attricetti e cantanti, anche se sapere che è molto de sinistra la Ferragni, che ha 40 milioni di euro da parte, ancora una volta mi fa interrogare sul senso dell'essere di sinistra: oltre al fuxia c'è di più? Pare di no.
+
+Intanto si scopre che la Ferragni (contro la quale non ho nulla, anzi la stimo per l'astuzia), dieci anni fa stava con Berlusconi, il che meglio si attagliava, invero, alla sua caratura estetica...
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 21 settembre 2022_
+
+---
+
+A chi dice che Amato era comunque in scadenza novennale, faccio presente che non cade la mia considerazione, dato che si poteva fissare l'udienza prima, e invece l'hanno fissata a novembre, sapendo che lui non ci sarebbe stato.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 19 settembre 2022_
+
+---
+
+La società dei divieti e degli obblighi, che ci viene in parte dal politicamente corretto, in parte dall'ecologismo fasullo della UE e da tutto il sistema delle "regole", in buona parte sempre di derivazione europea e fatto proprio dalla sinistra da Prodi in poi, è una società contrassegnata da una forte divisione di classe tra élites e poveracci, dato che gli obblighi sono per la gente comune e non mai per le élites.
+
+Ad esempio, se aboliranno la carne come cibo, sarà per il popolino, destinato a masticare cavallette, mentre i potenti continueranno a mangiare filetto.
+
+Lo stesso vale per auto, aerei e così via.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 18 settembre 2022_
+
+---
+
+Slittamenti progressivi del conformismo di sinistra: i casi Moretti, Guccini e altri
+
+Mi scriveva in privato un'amica che legge che "Nanni ha tradito".
+
+Vale a dire che Nanni Moretti è partito satireggiando l'ambiente di Democrazia Proletaria (possiamo essere così precisi perché fa capire che si riferisce alle delusioni del risultato elettorale del 1976), e finisce invocando la Cosa di Occhetto, D'Alema (sia pur criticamente) e la Palombella Rossa: come dire, totalmente risucchiato dall'ambiente del PCI, anche se ora fa film in cui mette le mani nel sedere a Isabella Ferrari (questa non l'avete vista, scena quasi-hard di Nanni Moretti) e parla poco di politica.
+
+Ciò segna il percorso del venir meno dell'intelligenza critica nell'ambito della sinistra, percorso analogo a quello dei Gad Lerner o dello stesso Sofri, e soprattutto di Marco Boato, il quale ormai è da anni che sta facendo riposare il cervello.
+
+Vi dirò invece di Francesco Guccini, il quale nel 1976 si definiva, come mi definivo io, anarco-radicale, e ora vale uno qualsiasi degli ospiti di Propaganda Live, per quanto abbia l'alibi del naturale rincoglionimento dovuto all'età, e questa scusa non si nega a nessuno, dato che può servire, al momento opportuno, a ognuno di noi.
+
+Leggete però questo ben noto passo dell'avvelenata, nel quale io mi riconoscevo:
+
+“Io tutto, io niente, io stronzo, io ubriacone, io poeta, io buffone, io anarchico, io fascista
+
+Io ricco, io senza soldi, io radicale, io diverso ed io uguale, negro, ebreo, comunista
+
+Io frocio, io perché canto so imbarcare, io falso, io vero, io genio, io cretino
+
+Io solo qui alle quattro del mattino, l’angoscia e un po' di vino, voglia di bestemmiare”.
+
+Ora, Guccini cantava queste parole davanti al pubblico del movimento del '77, oggi non lo farebbe, non potrebbe farlo, non potrebbe rivendicare la propria componente fascista, e già allora era tanto anche rivendicare quella radicale.
+
+Oggi Guccini segue la linea Fiano-ritardati di Tik Tok, quella secondo cui non esiste una cultura fascista, e il fascismo è "un reato", il che non significa nulla, evidentemente, eppure ci credono: "Il fascismo è un reato".
+
+Quindi se io nel mio ultimo libro dedico, come ho fatto, un capitolo alla cultura fascista, senza esprimere pleonastiche invettive di indignazione, ma solo indagando aspetti tecnico-economici, come in Filippo Carli o Ugo Spirito, sto sperimentando il rapporto con il male assoluto.
+
+Questo è infantilismo, evidentemente, perché allora nemmeno potrei approfondire che cosa dicesse Saint Just degli assegnati, dato che Saint Just non stava lì a pettinare bambole.
+
+Stupideria della sinistra è anche questa, ma una volta non era così, almeno non in tutti, diversamente Tronti non avrebbe tirato fuori Carl Schmitt e nemmeno Vattimo Nietzsche: no, è che si va sempre peggio, perché io da anni trovo stimoli culturali molto più vivaci nel mondo "sovranista" che in quello liberale, salvo che questo, non si sa perché, continua a ritenersi superiore, pur ad esempio non sapendo nulla, o non volendo sapere nulla, su come funziona l'emissione monetaria.
+
+Leggete i testi confessori della FED al riguardo, in America spiegano tutto, qua lo chiamano complottismo.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 17 settembre 2022_

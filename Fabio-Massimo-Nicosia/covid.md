@@ -76,3 +76,36 @@ Dobbiamo fare resistenza preventiva contro questa fruttarola che ci ha insultato
 
 _Pseudonimo Giuseppe Bessarione. Facebook, 27 settembre 2022_
 
+---
+
+Questa pessima campagna elettorale è stata anche la più truffaldina.
+
+Veniamo da oltre due anni e mezzo tremendi, in cui è sperimentata l'inesistenza in senso tecnico dello stato di diritto (per cui si è adottato qualsiasi tipo di atto, senza mai porsi il problema della sua legalità), il tutto con l'avallo della magistratura e il sostegno entusiasta della stampa e del culturame, e ora in questa campagna elettorale si fa finta di niente, come se non si fosse trattato di un esperimento che avrà certamente dei seguiti.
+
+Inoltre, abbiamo sperimentato il "bullismo di Stato", ossia esponenti governativi e non solo che hanno insultato per mesi dagli schermi televisivi cittadini per il solo fatto che stessero esercitando un loro diritto: i Draghi, i Brunetta (che si è ritirato, chissà come mai), i Sileri (che si è ritirato, chissà come mai), i Figliolo, e poi tutta la corte dei miracoli dei Parenzo, delle Lucarelli, e poi i Burioni e tutto l'altro ciarpame umano che sappiamo.
+
+E questo non vale solo per la sinistra, ma anche, si badi bene, per Forza Italia, che ci ha scatenato contro l'indegna e analfabeta Ronzulli, reduce dai fasti delle cene eleganti, ove intratteneva gli ospiti con i suoi gridolini striduli, dei quali poi noi abbiamo avuto contezza televisiva; vale per la Lega di merda, con l'inetto Salvini sempre accucciato davanti l'uomo della provvidenza, tanto per fare la figura del moderato responsabile; ma vale soprattutto per la sinistra, dato che questi indegni hanno cucito un'inguardabile campagna elettorale sui "diritti" dopo avere sputato per tre anni sui diritti fondamentali.
+
+Abbiamo dovuto subito pure l'umiliazione di sentire Speranza dire "sui diritti non si arretra".
+
+Io non voterò, dato che nessun partito ha nel programma l'incarcerazione a vita di tutti costoro, come sarebbe assolutamente doveroso: pane e acqua e buttare via la chiave.
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 22 settembre 2022_
+
+---
+
+Mentre una volta era consentito parlare in termini tecnici di "dittatura", anche perché si discuteva normalmente Schmitt che trattò il tema (dittatura sovrana, dittatura commissaria, dittatura romana, dittatura del proletariato, tant'è che io ho scritto un libro inneggiando alla dittatura libertaria nel senso di dittatura di Arrow), quando si è parlato, del tutto correttamente, di dittatura sanitaria, per intendere il primato della sanità sui diritti fondamentali (teorizzato da molta giurisprudenza e dai giuristi accademici di regime, in base all'art. 32), tutti a dire che siccome non ci sono i campi di concentramento non si può parlare di dittatura, che è il classico discorso da ignoranti che fanno i semicolti.
+
+Alla stessa stregua, oggi si può parlare, oltre che di dittatura ambientale, climatologica ed energetica -nel senso che sono altrettanti pretesti di primato del diktat sui diritti fondamentali-, si può parlare tranquillamente anche di dittatura LGBT, o almeno, di aspirante dittatura LGBT, dato che costoro pretendono che il loro pensiero si imponga, sopprimendoli, su quelli alternativi, che non vengono solo contestati, ma vengono qualificati come puramente e semplicemente illeciti (omofobi, quindi illeciti, e decidono loro cos'è omofobo)
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 20 settembre 2022_
+
+---
+
+L'illustre dott. prof. Bersani, quello che vuole le cure psichiatriche per i no map, se voi andate a leggere il suo "paper" (toilet paper), se la prende anche con chi contesta le politiche mappinali.
+
+Ossia sto criminale farebbe il TSO anche chi è contro l'obbligo mappinale, per essere sano di mente devi essere per l'obbligo mappinale.
+
+Io non capisco come qualcuno possa dare ancora il minimo credito a questa squalificata pseudo-scienza che è la cosiddetta psichiatria: dovrebbero arrestarli per abuso della credulità popolare come Wanna Marchi, invece ci hanno pure la "rivista accademica" dove scrivono queste buttanate
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 19 settembre 2022_

@@ -12,6 +12,7 @@
 - [La vicenda psichiatrica](./vicenda-psichiatrica.md)
 - [Scritti giuridici](./scritti-giuridici.md)
 - [Storia della politica](./storia-politica.md)
+- [Unione Europea](./unione-europea.md)
 - [Cospito e il 41 bis](./cospito-41-bis.md)
 - [Personale](./personale.md)
 - [Varie](./varie.md)

@@ -101,3 +101,24 @@ Ora Inzaghi può prendersi la sua pensione da invalido psichico e Handanovic que
 
 _Pseudonimo Giuseppe Bessarione. Facebook, 2 ottobre 2022 (censura per evitare ban)_
 
+---
+
+Tiriamoci su il morale con una compilation di parate laser di Handanovic, ossia di lui che para guardando la palla che entra in rete.
+
+Ah, grazie Inzaghi del cazzo che continui a farlo giocare.
+
+https://www.youtube.com/watch?v=IjsivLlox88
+
+---
+
+Se volete uno spettacolo freak-horror guardatevi Udinese-Inter.
+
+Si vedono dei bijou di Brozovic meravigliosi, tipo perdere tre volte la palla nella propria area e al limite, o un passaggio indietro di Bastoni su punizione veramente da manicomio.
+
+Inzaghi fa dei cambi che sembrano omaggi alla sorte, tipo "vediamo se va".
+
+Poi dovendo andare a far goal cambia due difensori...
+
+Ma vattinne, idiota!
+
+_Pseudonimo Giuseppe Bessarione. Facebook, 18 settembre 2022_
